@@ -5,4 +5,4 @@ Hello, this is a mini short horror-ish story about symptoms of sleep deprivation
 
 Enjoy!
 
-Sheima Thebaud 
+Sheïma Thébaud 
